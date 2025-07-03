@@ -58,8 +58,8 @@ Try Mindvalley risk-free for [**15 days**](https://bit.ly/3W5sL0n) and explore p
 
 Students can now [**save 35%**](https://bit.ly/3W5sL0n) on Mindvalley All Access, upgrade your learning and mindset affordably with this verified student offer.
 
-![mindvalley student discount](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdiVHkDvj5eXPwvSEBjp6GMmFFwYI0OgmaAmMtueJa2-4WLZpQPxA9nC-AFSpLz4n33ZsU_74q_u6pnkws-4mXEujKUntahEfCIQ9pnmzOqSF-yYmwQ9yJAT5o04qVrsh2LF2ow9w?key=WpQB3VG-0lM2t9IuKzGqcQ)
-
+[![mindvalley student discount](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdiVHkDvj5eXPwvSEBjp6GMmFFwYI0OgmaAmMtueJa2-4WLZpQPxA9nC-AFSpLz4n33ZsU_74q_u6pnkws-4mXEujKUntahEfCIQ9pnmzOqSF-yYmwQ9yJAT5o04qVrsh2LF2ow9w?key=WpQB3VG-0lM2t9IuKzGqcQ)
+](https://bit.ly/3W5sL0n)
 - Designed to help students master focus, memory, and productivity.
 - Learn life skills not taught in traditional education.
 - Gain confidence, clarity, and emotional resilience.
